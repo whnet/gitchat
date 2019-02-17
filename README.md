@@ -1,5 +1,6 @@
 分享一些学习资料，下面是一些列表，后续在留言中更新，有需要的可留言：
 
+百度云：链接:https://pan.baidu.com/s/1J5Z8xSMDH8zCsdGzOZB_TA  密码:ineh
 
 
 一款知识图谱应用产品
